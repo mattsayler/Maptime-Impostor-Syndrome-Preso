@@ -127,7 +127,7 @@
 
 ---
 
-## 
+## Which is sort of like fearing your own power and potential
 
 ---
 
